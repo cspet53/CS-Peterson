@@ -9,7 +9,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-I hope that you like my intereseting projects related to python. Further with time, I would be publishing projects related to other wonderful programming languages
+I hope that you like my intereseting projects related to python. Further with time, I would be publishing projects related to other wonderful programming languages. Please mind hitting the '+Follow' button on my profile to get more from me. 
 
 ------------------------------------------------------------------------------------------
 
